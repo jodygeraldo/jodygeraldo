@@ -8,4 +8,4 @@
 ### Hi there 👋
 
 [Get to know me more here](https://jodygeraldo.com/)<br>
-Chat with me on discord [Odlareg#7899](https://discordapp.com/users/321585722182205440)
+Chat with me on discord [Odlareg#3358](https://discordapp.com/users/321585722182205440)
